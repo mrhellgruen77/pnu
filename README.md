@@ -1,2 +1,2 @@
 # pnu
-Projektgruppe für Nachhaltigkeit un dUmweltschutz
+Projektgruppe für Nachhaltigkeit und Umweltschutz
